@@ -1,16 +1,13 @@
-### Hi there 👋
+### Hey There
 
-<!--
-**Ded-Ser/Ded-Ser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## I'm Ded Ser 
 
-Here are some ideas to get you started:
+Im Not A Developer
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I Don't Know Coding
+
+Contact Me Via 
+
+###### [WhatsApp Group](https://chat.whatsapp.com/BU9J75OBL3S5rqwFyvQS1N) 
+
+###### [Telegram Group](https://t.me/joinchat/gtbPW3a41vYzYzBl) 
